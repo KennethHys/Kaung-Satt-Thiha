@@ -1,2 +1,3 @@
 # Kaung-Satt-Thiha
-Kenneth,19yrs,collaboration manager,moderator 
+Kenneth,jpeg trader,daily analysis, ape in for degens
+
